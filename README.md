@@ -1,2 +1,0 @@
-# troly_thinv1
-
